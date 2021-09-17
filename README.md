@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Prachi106-star
-- 👀 I’m a whitehat junior student ...
-- 🌱 I’m currently learning javascript
-- 💞️ I’m in love with coding  ...
-- 📫 this is what you can do using my repositry ...
+- 👋 Annyeonghaseyo !! Jeoneum "**_Jimin's Jams_**"
+- 👀 I have kept all the lost  **_passport of namjoon_**
+- 🌱 I have lot's of money to buy _**Taehyung gucci **_
+- 💞️ I am the daughter of banana milk company so I will give _**jungkook all banana milk**_ produced in our factory  
+- 📫 I will give _**OUR JIN AKA WWH a mirror**_ to look at his beautiful face 
 
+-I am an army and I have everything that BTS need for them 
 
--I have many repositries . I am learning javascript , maybe there will be some errors in my repositries and you can try removing them I hope it will be fun 
 
