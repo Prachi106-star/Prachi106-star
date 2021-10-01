@@ -1,4 +1,4 @@
-- 👋 Annyeonghaseyo !! Jeoneum "**_Jimin's Jams_**"
+- 👋 Annyeonghaseyo !! Jeoneum "**_Justin seagull_**"
 - 👀 I have kept all the lost  **_passport of namjoon_**
 - 🌱 I have lot's of money to buy _**Taehyung gucci **_
 - 💞️ I am the daughter of banana milk company so I will give _**jungkook all banana milk**_ produced in our factory  
